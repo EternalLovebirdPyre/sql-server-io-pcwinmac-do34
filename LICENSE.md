@@ -1,4 +1,4 @@
-# 
+# Melhor SQL Server Management Studio ferramentas para Mac OS | Inteligente SQL Server Management Studio ferramentas para PC Windows. Com monitor de atividade e suporte a múltiplas contas — otimizado para máximo desempenho em cada plataforma.
 
 
 
